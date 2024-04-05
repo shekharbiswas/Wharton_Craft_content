@@ -15,3 +15,7 @@ By the end of this course, you'll have a better understanding of how to craft co
 
 
 
+1. What makes Ideas sticky
+2. Social influence shapes behaviour
+3. Word of mouth
+4. social networks
