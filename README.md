@@ -14,8 +14,4 @@ Drawing on principles from his best-selling book, "Contagious: Why Things Catch 
 By the end of this course, you'll have a better understanding of how to craft contagious content, build stickier messages, and get  any product, idea, or behavior to catch on.
 
 
-<img src="https://github.com/shekharbiswas/Startup-guide/assets/32758439/df9f0905-1d89-42f0-9725-cd0b752c8d66" width="300">
 
-
-
-<img src="https://github.com/shekharbiswas/Startup-guide/assets/32758439/df9f0905-1d89-42f0-9725-cd0b752c8d66" width="300">
